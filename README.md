@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BYALPERENK. I'm M.D.
+- 👀 I’m interested in deep learning, games, simulation of the universe and nature...
+- 📫 How to reach me https://www.linkedin.com/in/alperen-kaban-143179235/
